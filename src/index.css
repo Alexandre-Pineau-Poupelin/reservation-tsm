@@ -1,0 +1,17 @@
+@tailwind base;
+@tailwind components;
+@tailwind utilities;
+
+@layer base {
+  html {
+    scroll-behavior: smooth;
+  }
+
+  body {
+    @apply bg-sand-50 text-stone-800 font-sans;
+  }
+
+  input[type='date']::-webkit-calendar-picker-indicator {
+    @apply opacity-50 cursor-pointer;
+  }
+}
