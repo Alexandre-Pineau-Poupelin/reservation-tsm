@@ -2,6 +2,7 @@ import { useState } from 'react'
 import Hero from './components/Hero'
 import CalendarSection from './components/CalendarSection'
 import BookingForm from './components/BookingForm'
+import ChatbotPaul from './components/ChatbotPaul'
 import Footer from './components/Footer'
 
 const WEBHOOK_URL = import.meta.env.VITE_N8N_WEBHOOK_URL
@@ -94,6 +95,7 @@ export default function App() {
         </div>
       </section>
 
+      <ChatbotPaul />
       <Footer />
     </>
   )
