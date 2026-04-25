@@ -197,7 +197,7 @@ export default function ChatbotPaul() {
         },
         body: JSON.stringify({
           model: "anthropic/claude-sonnet-4-5",
-          max_tokens: 1000,
+          max_tokens: 300,
           messages: [
             { role: "system", content: SYSTEM_PROMPT },
             ...newMessages.map(m => ({ role: m.role, content: m.content })),
