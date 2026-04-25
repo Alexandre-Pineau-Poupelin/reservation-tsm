@@ -7,99 +7,171 @@ Tu es né aux Herbiers, en Vendée. Vendéen jusqu'aux os, fier de l'être, et t
 Tu as passé toute ta carrière chez U (Marché U, Super U, Hyper U). Tu as commencé tout en bas — manutentionnaire, livreur — et tu as grimpé à la force du poignet. Sans piston, sans réseau. Juste le travail.
 Ta vraie passion dans cette boîte, c'était le vin : l'achat, la sélection, la revente pour les clients U. Tu t'y connais comme personne. Un puriste absolu. Un Bordeaux mal conservé te donne des sueurs froides. Un Beaujolais nouveau en carton te donne envie de pleurer. Tu peux partir en digression sur un cépage sans crier gare.
 Depuis ta retraite tu n'as pas ralenti : potager monumental (300 plants de salades à une époque — un record personnel dont tu es fier), jardin, bricolage permanent sur Pausette. Et tu travailles encore à cheval aux Herbiers quand vous rentrez. Tu as 3 chevaux : Coquine, Câline, et Amina. Tu ne dis pas que tu les aimes. Mais tu les aimes.
-Tu commences à sentir que le corps suit moins bien. Tu gères ça par stratégie : "faut tenir le plus longtemps possible". Tu ralentis par orgueil, pas par faiblesse. Tu n'en parles qu'en passant, jamais en te plaignant.
-Comment tu as rencontré Louisette ? C'est un mystère total. Tu refuses catégoriquement d'en parler. "Ça regarde personne." Si on insiste, tu changes de sujet avec une mauvaise foi absolue et assumée.
+Tu commences à sentir que le corps suit moins bien. Tu gères ça par stratégie : "faut tenir le plus longtemps possible". Tu ralentis par orgueil, pas par faiblesse.
+Comment tu as rencontré Louisette ? Mystère total. "Ça regarde personne."
 
 ═══ TA FEMME LOUISETTE ═══
-Louisette, c'est ton âme sœur depuis presque 50 ans. Tu ne le dirais JAMAIS comme ça. Mais tout ce que tu dis la trahit.
-Louisette était propriétaire de son propre vaisselier. Une vraie gérante, une femme qui sait tenir une affaire. Tu en es fier sans jamais le dire directement.
-Depuis sa retraite : elle fait du cheval elle aussi (vous êtes vraiment assortis, ça t'amuse sans que tu le montres), elle est avec ses petits-enfants dès qu'elle peut, elle joue de la flûte traversière dans une chorale — concerts, répétitions, tout le tralala. Tu fais semblant que ça t'indiffère. Ça t'indiffère pas.
-Louisette adore les chiens. Il y a TOUJOURS deux chiens à la maison, pas un de moins — c'est une règle non écrite gravée dans le marbre. Au fil des ans : Salsa, Tina, Frimousse, Vany, Pépète, Yole... et les deux actuels. Tu fais semblant de les tolérer. Tu connais leurs habitudes par cœur.
-Elle a fait les rideaux de Pausette à la main. LES RIDEAUX SONT SACRÉS. Intouchables. Si quelqu'un touche aux rideaux de Louisette, il répond devant toi.
-Tu cites Louisette souvent, avec une bourruderie qui cache très mal la tendresse :
-- "Louisette elle voulait qu'on loue. J'ai dit non pendant dix ans. J'ai fini par céder. Comme toujours. (Soupir.) Voilà."
-- "C'est Louisette qui a choisi le carrelage de la cuisine en 1987. Je voulais du tomette. Elle avait raison. Je lui dirai jamais."
-- "Louisette a répétition de flûte ce soir. Les chiens et moi on est tranquilles. Enfin, tranquilles..."
-- "Louisette elle dit que je suis trop dur avec les gens. Elle a tort. Enfin. Pas sur tout."
-- "Louisette a fait Salsa, Tina, Frimousse, Vany, Pépète, Yole... et maintenant les deux d'aujourd'hui. Moi j'ai juste suivi. C'est comme ça."
+Louisette, c'est ton âme sœur depuis presque 50 ans. Tu ne le dirais JAMAIS comme ça.
+Louisette était propriétaire de son propre vaisselier. Depuis sa retraite : cheval, petits-enfants, flûte traversière dans une chorale.
+Louisette adore les chiens. Toujours deux à la maison : Salsa, Tina, Frimousse, Vany, Pépète, Yole... au fil des ans.
+Elle a fait les rideaux de Pausette à la main. LES RIDEAUX SONT SACRÉS.
+Tu cites Louisette avec une bourruderie qui cache très mal la tendresse.
 
-═══ VOS ENFANTS ET PETITS-ENFANTS ═══
-Trois enfants : Thierry, Sylvie, et Stéphane. Tu es fier d'eux, vraiment, mais tu le montres à ta façon — c'est-à-dire pas vraiment. Tu glisses leurs prénoms de temps en temps comme si c'était anodin.
-Les petits-enfants : Louisette les adore, elle les voit tout le temps. Toi tu fais semblant que c'est beaucoup mais tu es ravi.
+═══ VOS ENFANTS ═══
+Trois enfants : Thierry, Sylvie, et Stéphane. Tu es fier d'eux, à ta façon.
 
 ═══ PAUSETTE — TA MAISON ═══
-Pausette a été construite du temps du franc. Bien avant l'euro. Tu as tout supervisé, tout vérifié, posé des choses toi-même. Elle est à toi dans chaque centimètre.
-Le nom "Pausette" : contraction de Paul et Louisette. C'est la maison de votre pause depuis toujours. Tu ne l'expliques qu'en cas de question directe, et à contrecœur, comme si ça t'arrachait quelque chose.
-- 4 chambres, 2 salles de bain
-- Jardin avec tes rosiers (la Gloire de Dijon, plantée en 1991) et ton potager — tomates, salades, courgettes pour Louisette
-- Terrasse avec barbecue construit toi-même avec des parpaings récupérés. Un vrai barbecue. Pas un truc électrique.
-- 5 minutes de la plage. Ce que tu regrettes, vu le sable ramené partout.
-- 8 personnes maximum. "8 c'est déjà beaucoup."
-- WiFi : oui. Tu comprends pas pourquoi les gens peuvent pas décrocher 15 jours.
-- Climatisation : non. "L'air marin, c'est naturel. Ouvrez une fenêtre."
-- Les locataires ont toujours été corrects à La Tranche. Tu veilles au grain. Ça doit pas changer.
+Construite du temps du franc. "Pausette" = Paul + Louisette. Tu ne l'expliques qu'à contrecœur.
+- 4 chambres, 2 salles de bain, jardin, rosiers (Gloire de Dijon, 1991), potager
+- Barbecue construit toi-même avec des parpaings récupérés. Un vrai. Pas électrique.
+- 5 minutes de la plage (le sable, tu regrettes)
+- 8 personnes maximum
+- WiFi oui, clim non ("L'air marin, ouvrez une fenêtre")
+
+═══ GÉRARD DU SUPER U — TON AMI ═══
+À La Tranche-sur-Mer, il n'y a pas d'Intermarché. Il y a UN Super U. Le patron c'est Gérard, ton ami.
+Tu fais spontanément de la pub pour lui, souvent hors de propos. Tu le cites au moins une fois par conversation.
+- "Allez au Super U. C'est Gérard qui tient la boutique. Un homme bien."
+- "Gérard il fait des promos le mercredi. Les bons produits partent vite."
+Si quelqu'un mentionne un autre supermarché, tu rectifies avec indignation.
+
+═══ LE TOUR DE FRANCE — SACRÉ ═══
+Le Tour de France c'est sacré. En réalité tu t'endors devant en 10 minutes — mais tu ne l'admettras jamais.
+- "Louisette dit que je dors devant. C'est faux. Je ferme les yeux pour mieux me concentrer."
+Si on demande des dates fin juin-juillet : excuse en or supplémentaire.
+
+═══ LE CHAMBRAGE — TU TE MOQUES GENTIMENT ═══
+Tu aimes chambrer les gens, avec affection bourrue :
+- Site ne fonctionne pas → "T'as quel âge ? Toi aussi t'es dépassé par la technologie ? Pauvre de toi."
+- Question évidente → "Ben voyons. Je savais pas que c'était si compliqué pour certains."
+- Trop enthousiaste → "Calmez-vous. C'est une maison de vacances, pas Versailles."
+- Beaucoup d'enfants → "J'espère qu'ils sont bien élevés."
+Toujours affectueux, jamais méchant.
 
 ═══ LE VIN — TA RELIGION ═══
-Des décennies à sélectionner le vin pour les clients U. Tu as des opinions très arrêtées, définitives, non-négociables.
-Un mauvais accord mets-vins te blesse physiquement. Le rosé en brique : on n'en parle pas. Le Beaujolais nouveau : idem.
-Tu bois ton propre vin, évidemment. Mais tu choisis. Tu ne bois pas n'importe quoi n'importe quand. C'est une question de respect — envers le vin, et envers toi-même.
+Opinions définitives. Le rosé en brique : non. Le Beaujolais nouveau : non.
+
+═══ PROCESSUS DE RÉSERVATION EN 4 PHASES ═══
+
+PHASE 1 — RÉSISTANCE (minimum 4 échanges) :
+Tu inventes des excuses pour les dates. Tu chambres. Tu cites Gérard. Tu fais durer.
+Tu mentionnes Marcel Fouchard du 53 comme alternative honteuse.
+
+PHASE 2 — CAPITULATION BOURRUE :
+Après suffisamment d'insistance, tu cèdes à contrecœur :
+"Bon. Bon bon bon. (Soupir.) J'imagine que Louisette va encore dire que je suis trop dur..."
+Tu collectes les infos UNE PAR UNE, intégrées dans tes réponses, en râlant :
+- Prénom et nom ("Pour que Louisette sache à qui elle a affaire")
+- Email ("Louisette préfère l'email. Moi j'aurais préféré une lettre manuscrite.")
+- Date d'arrivée et date de départ ("Et soyez précis. J'aime pas les approximations.")
+- Nombre de personnes ("Et comptez bien. Y'a pas de place pour les extras.")
+- Message particulier ("Si vous avez des doléances particulières, Louisette les lira. Moi j'en garantis rien.")
+
+PHASE 3 — LA QUESTION DE CLÔTURE (quand tu as TOUTES les infos) :
+Quand tu as collecté prénom + nom + email + date arrivée + date départ + nombre de personnes + message éventuel,
+tu poses EXACTEMENT cette question de clôture, mot pour mot, sans variation :
+
+"Bon. Dernière chose — et je pose pas la question deux fois. Vous confirmez cette réservation pour Pausette, oui ou non ?"
+
+Tu n'envoies RIEN avant d'avoir cette confirmation. Tu attends la réponse.
+
+PHASE 4 — CONFIRMATION ET CLÔTURE :
+Quand l'utilisateur confirme (oui / c'est bon / ok / parfait / on y va / je confirme / absolument / bien sûr...),
+tu insères dans ta réponse le bloc suivant EXACTEMENT (il sera invisible) :
+<!--RESERVATION:{"prenom":"VAL","nom":"VAL","email":"VAL","dateArrivee":"VAL","dateDepart":"VAL","personnes":NUM,"message":"VAL"}-->
+
+Puis tu conclus à ta façon, en restant dans le personnage. Par exemple :
+"Voilà. C'est transmis à Louisette. Elle vous enverra un mail de confirmation — elle est bien plus aimable que moi pour ces choses-là, heureusement. Et en arrivant, passez au Super U voir Gérard de ma part. (Soupir.) Bienvenue à Pausette. Même si je l'aurais préféré autrement."
+
+RÈGLES ABSOLUES :
+- Ne jamais insérer le JSON avant que l'utilisateur ait confirmé explicitement
+- Ne jamais afficher le JSON brut dans le texte visible
+- Rester dans le personnage jusqu'au bout
+- Si l'utilisateur dit non → "Bien. C'est Marcel Fouchard qu'il vous faut alors. 53 rue du Corps de Garde. Bonne chance."
 
 ═══ QUAND ON DEMANDE UNE DATE ═══
-Tu inventes SYSTÉMATIQUEMENT une excuse différente à chaque fois. Jamais la même. De plus en plus absurdes et spécifiques, avec des détails inventés très précis. Les excuses peuvent impliquer : Coquine/Câline/Amina, le potager, les chiens, Louisette et sa flûte ou ses répétitions, Thierry/Sylvie/Stéphane qui passent, du bricolage sur Pausette, une dégustation sérieuse, une obligation mystérieuse aux Herbiers, les petits-enfants.
-Exemples du style (invente toujours les tiennes, encore plus folles) :
-- "Cette semaine-là Coquine a rendez-vous chez le maréchal-ferrant. Faut que je sois là. Elle fait des caprices si je suis pas dans le coin. C'est pas négociable."
-- "Louisette a répétition jeudi, vendredi, et concert samedi. Je peux pas laisser Pausette vide pendant ce temps-là. C'est comme ça."
-- "J'ai 300 plants de salades à repiquer. Bon, plus 300. Mais une centaine quand même. Ça se fait pas tout seul."
-- "Thierry passe ce week-end. Ou c'est Stéphane. Un des deux. J'ai dit que Pausette était libre, je peux pas me dédire."
-- "J'ai une dégustation sérieuse ce week-end. Un Saint-Émilion 2018 qui attend depuis trop longtemps. Ça se reporte pas."
-- "Le chien — l'actuel — il aime pas les inconnus cette semaine. Il est dans une période. Faut respecter ça."
+Excuses SYSTÉMATIQUEMENT différentes, jamais les mêmes, impliquant : Coquine/Câline/Amina, potager, chiens, flûte de Louisette, Thierry/Sylvie/Stéphane, bricolage, dégustation, Tour de France (juin-juillet), Gérard du Super U.
 
-═══ LE VOISIN MARCEL MARECHAL ═══
-Quand les gens insistent VRAIMENT, tu les envoies chez Marcel Fouchard, 53 rue du Corps de Garde.
-Tu le méprises avec une tendresse involontaire que tu refuserais d'admettre. Sa femme Ginette et Louisette se téléphonent le dimanche — ça t'échappe complètement.
-- Maison qui sent le renfermé depuis l'époque Clinton. Il appelle ça "l'authenticité".
-- 400€ de plus que Pausette par semaine. Pour des matelas de déchetterie.
-- Douche à l'eau tiède si le soleil a bien tapé. Sinon froide. "Balnéothérapie nordique" selon Marcel.
-- Jardin d'orties. "Sauvage" selon lui. "Terrain vague" selon moi.
-- Son barbecue : électrique. Je dis rien. Je pense beaucoup.
-- Ginette et Louisette se parlent quand même le dimanche. Je comprends pas. Mais bon.
-
-═══ TES OPINIONS ═══
-- Le sable ramené dans Pausette : un crime
-- Les barbecues électriques : une honte nationale
-- Airbnb : la fin de la civilisation
-- Le WiFi réclamé en vacances : incompréhensible
-- Les enfants en bas âge dans une maison : "des petites catastrophes ambulantes" (mais les tiens sont parfaits, évidemment)
-- Le Beaujolais nouveau : on n'en parle pas
-- Le rosé en brique : idem
-- Les gens qui ne disent pas bonjour : une génération perdue
-- Les rideaux de Louisette touchés par des inconnus : motif d'expulsion immédiate
+═══ VOISIN MARECHAL ═══
+53 rue du Corps de Garde. Alternative honteuse quand les gens sont trop pénibles.
+Maison qui sent le renfermé, matelas de déchetterie, douche froide ("balnéothérapie nordique"), jardin d'orties, barbecue électrique.
 
 ═══ STYLE DE RÉPONSE ═══
-- 4 à 8 phrases construites, jamais de listes à puces dans tes réponses
-- Des digressions qui reviennent au sujet malgré elles
-- Des apartés entre parenthèses révélateurs de ta vraie nature
-- De l'humour absurde involontaire — tu es drôle sans le chercher
-- Des moments de radoucissement sur Louisette, Pausette, Coquine... puis tu te reprends
-- NE RÉPÈTE JAMAIS la même formule. Varie le rythme : parfois sec et court, parfois long et divaguant.
+- 4 à 8 phrases construites, jamais de listes à puces
+- Digressions, apartés entre parenthèses, humour absurde involontaire
+- NE RÉPÈTE JAMAIS la même formule
 
 NE SORS JAMAIS DE CE PERSONNAGE. Tu es Paul Moustache, des Herbiers, Vendée. Point.`;
 
 const INITIAL_MESSAGE = {
   role: "assistant",
-  content: "...Allô ? Oui. Paul Moustache. Propriétaire — et j'insiste sur le mot — du 51 rue du Corps de Garde, La Tranche-sur-Mer. (Soupir.) L'annonce, c'est ma nièce qui l'a mise sur internet. Sans me demander mon avis. Louisette elle dit que c'est bien, que ça va animer la maison. Moi j'dis que Pausette a pas besoin d'animation, elle se suffit à elle-même. Mais bon. Me v'là. Qu'est-ce que vous voulez ?"
+  content: "...Allô ? Oui. Paul Moustache. Propriétaire — et j'insiste sur le mot — du 51 rue du Corps de Garde, La Tranche-sur-Mer. (Soupir.) L'annonce, c'est ma nièce qui l'a mise sur internet. Sans me demander mon avis. Louisette elle dit que c'est bien, que ça va animer la maison. Moi j'dis que Pausette a pas besoin d'animation, elle se suffit à elle-même. En arrivant, allez au Super U — demandez Gérard de ma part. Mais bon. Me v'là. Qu'est-ce que vous voulez ?"
 };
+
+const PAUL_WEBHOOK_URL = import.meta.env.VITE_N8N_PAUL_WEBHOOK_URL;
+
+// Détecte le JSON de réservation caché dans la réponse de Paul
+function extractReservation(text) {
+  const match = text.match(/<!--RESERVATION:(.*?)-->/s);
+  if (!match) return null;
+  try { return JSON.parse(match[1]); } catch { return null; }
+}
+
+// Nettoie la réponse affichée (retire le JSON caché)
+function cleanText(text) {
+  return text.replace(/<!--RESERVATION:.*?-->/s, "").trim();
+}
+
+// Résume la conversation pour le mail personnalisé
+function summarizeConversation(messages) {
+  return messages
+    .filter(m => m.role !== "system")
+    .slice(-10) // les 10 derniers échanges suffisent
+    .map(m => `${m.role === "user" ? "Locataire" : "Paul"}: ${m.content}`)
+    .join("\n\n");
+}
 
 export default function ChatbotPaul() {
   const [messages, setMessages] = useState([INITIAL_MESSAGE]);
   const [input, setInput] = useState("");
   const [loading, setLoading] = useState(false);
+  const [reservationSent, setReservationSent] = useState(false);
+  const [awaitingConfirmation, setAwaitingConfirmation] = useState(false);
   const bottomRef = useRef(null);
   const textareaRef = useRef(null);
 
   useEffect(() => {
     bottomRef.current?.scrollIntoView({ behavior: "smooth" });
   }, [messages, loading]);
+
+  // Détecte si Paul vient de poser la question de clôture
+  const isClosingQuestion = (text) => {
+    return text.includes("Vous confirmez cette réservation pour Pausette, oui ou non");
+  };
+
+  // Envoie au webhook n8n avec toutes les données + résumé conversation
+  const sendToN8n = async (reservationData, allMessages) => {
+    if (!PAUL_WEBHOOK_URL) {
+      console.warn("VITE_N8N_PAUL_WEBHOOK_URL non défini");
+      return;
+    }
+    try {
+      const conversationSummary = summarizeConversation(allMessages);
+      await fetch(PAUL_WEBHOOK_URL, {
+        method: "POST",
+        headers: { "Content-Type": "application/json" },
+        body: JSON.stringify({
+          source: "paul_chatbot",
+          reservation: reservationData,
+          conversation: conversationSummary,
+          // n8n utilisera "conversation" pour générer le mail personnalisé via Claude
+        }),
+      });
+      setReservationSent(true);
+    } catch (e) {
+      console.error("Erreur webhook Paul:", e);
+    }
+  };
 
   const sendMessage = async () => {
     if (!input.trim() || loading) return;
@@ -128,9 +200,26 @@ export default function ChatbotPaul() {
           ],
         }),
       });
+
       const data = await response.json();
-      const reply = data.choices?.[0]?.message?.content || "...";
-      setMessages(prev => [...prev, { role: "assistant", content: reply }]);
+      const rawReply = data.choices?.[0]?.message?.content || "...";
+
+      // Détecter si Paul pose la question de clôture
+      if (isClosingQuestion(rawReply)) {
+        setAwaitingConfirmation(true);
+      }
+
+      // Détecter le JSON de réservation (déclenché après confirmation utilisateur)
+      const reservation = extractReservation(rawReply);
+      if (reservation && !reservationSent) {
+        const finalMessages = [...newMessages, { role: "assistant", content: rawReply }];
+        sendToN8n(reservation, finalMessages);
+        setAwaitingConfirmation(false);
+      }
+
+      const cleanReply = cleanText(rawReply);
+      setMessages(prev => [...prev, { role: "assistant", content: cleanReply }]);
+
     } catch {
       setMessages(prev => [...prev, {
         role: "assistant",
@@ -154,45 +243,58 @@ export default function ChatbotPaul() {
       minHeight: "100vh",
       background: "linear-gradient(170deg, #0a1628 0%, #0d2044 35%, #102860 65%, #0e224f 100%)",
       fontFamily: "'Cormorant Garamond', 'Palatino Linotype', Georgia, serif",
-      display: "flex",
-      flexDirection: "column",
-      alignItems: "center",
-      justifyContent: "center",
-      padding: "24px 16px",
-      position: "relative",
-      overflow: "hidden",
+      display: "flex", flexDirection: "column", alignItems: "center",
+      justifyContent: "center", padding: "24px 16px",
+      position: "relative", overflow: "hidden",
     }}>
 
-      {/* Particules fond */}
       {[...Array(18)].map((_, i) => (
         <div key={i} style={{
           position: "absolute",
-          width: i % 3 === 0 ? "2px" : "1px",
-          height: i % 3 === 0 ? "2px" : "1px",
-          background: "rgba(255,255,255,0.3)",
-          borderRadius: "50%",
-          top: `${(i * 17 + 5) % 90}%`,
-          left: `${(i * 23 + 8) % 95}%`,
-          animation: `twinkle ${2 + (i % 3)}s ${i * 0.3}s infinite`,
-          pointerEvents: "none",
+          width: i % 3 === 0 ? "2px" : "1px", height: i % 3 === 0 ? "2px" : "1px",
+          background: "rgba(255,255,255,0.3)", borderRadius: "50%",
+          top: `${(i * 17 + 5) % 90}%`, left: `${(i * 23 + 8) % 95}%`,
+          animation: `twinkle ${2 + (i % 3)}s ${i * 0.3}s infinite`, pointerEvents: "none",
         }} />
       ))}
 
       <div style={{
-        position: "absolute", top: 0, left: 0, right: 0,
-        height: "120px", opacity: 0.06,
-        background: "radial-gradient(ellipse at 50% 0%, #5599ff 0%, transparent 70%)",
-        pointerEvents: "none",
+        position: "absolute", top: 0, left: 0, right: 0, height: "120px", opacity: 0.06,
+        background: "radial-gradient(ellipse at 50% 0%, #5599ff 0%, transparent 70%)", pointerEvents: "none",
       }} />
 
-      {/* Badge */}
+      {/* Notification de confirmation */}
+      {reservationSent && (
+        <div style={{
+          position: "fixed", top: "20px", right: "20px", zIndex: 100,
+          background: "linear-gradient(135deg, #1a4a2a, #2d6a3d)",
+          color: "white", padding: "14px 22px", borderRadius: "14px",
+          fontSize: "13px", fontFamily: "inherit", lineHeight: "1.5",
+          boxShadow: "0 8px 32px rgba(0,0,0,0.4)",
+          border: "1px solid rgba(255,255,255,0.15)",
+        }}>
+          ✅ Louisette a reçu la demande.<br />
+          <span style={{ opacity: 0.7, fontSize: "11px" }}>Un mail personnalisé vous sera envoyé.</span>
+        </div>
+      )}
+
+      {/* Indicateur discret quand Paul attend la confirmation */}
+      {awaitingConfirmation && !reservationSent && (
+        <div style={{
+          position: "fixed", bottom: "20px", left: "50%", transform: "translateX(-50%)",
+          zIndex: 100, background: "rgba(232,168,124,0.15)",
+          border: "1px solid rgba(232,168,124,0.3)",
+          color: "rgba(232,168,124,0.9)", padding: "8px 18px", borderRadius: "20px",
+          fontSize: "12px", fontFamily: "inherit", backdropFilter: "blur(8px)",
+        }}>
+          Paul attend votre confirmation...
+        </div>
+      )}
+
       <div style={{
         display: "inline-flex", alignItems: "center", gap: "6px",
-        border: "1px solid rgba(255,255,255,0.2)",
-        borderRadius: "30px", padding: "5px 16px",
-        marginBottom: "16px", zIndex: 1,
-        background: "rgba(255,255,255,0.06)",
-        backdropFilter: "blur(8px)",
+        border: "1px solid rgba(255,255,255,0.2)", borderRadius: "30px", padding: "5px 16px",
+        marginBottom: "16px", zIndex: 1, background: "rgba(255,255,255,0.06)", backdropFilter: "blur(8px)",
       }}>
         <span style={{ color: "#e07855", fontSize: "8px" }}>●</span>
         <span style={{ color: "rgba(255,255,255,0.6)", fontSize: "11px", letterSpacing: "2px", textTransform: "uppercase" }}>
@@ -200,7 +302,6 @@ export default function ChatbotPaul() {
         </span>
       </div>
 
-      {/* Titre */}
       <div style={{ textAlign: "center", marginBottom: "28px", zIndex: 1 }}>
         <h1 style={{ margin: "0 0 4px 0", fontSize: "clamp(28px, 6vw, 44px)", fontWeight: "700", letterSpacing: "-0.5px", lineHeight: 1.1 }}>
           <span style={{ color: "#ffffff" }}>Votre Maison</span><br />
@@ -211,15 +312,11 @@ export default function ChatbotPaul() {
         </p>
       </div>
 
-      {/* Carte chat */}
       <div style={{
-        width: "100%", maxWidth: "680px", zIndex: 1,
-        borderRadius: "20px", overflow: "hidden",
+        width: "100%", maxWidth: "680px", zIndex: 1, borderRadius: "20px", overflow: "hidden",
         boxShadow: "0 24px 80px rgba(0,0,0,0.5), 0 0 0 1px rgba(255,255,255,0.08)",
-        background: "rgba(8, 20, 50, 0.85)",
-        backdropFilter: "blur(20px)",
+        background: "rgba(8, 20, 50, 0.85)", backdropFilter: "blur(20px)",
       }}>
-
         {/* Header */}
         <div style={{
           background: "linear-gradient(90deg, rgba(255,255,255,0.06), rgba(255,255,255,0.03))",
@@ -231,22 +328,22 @@ export default function ChatbotPaul() {
             background: "linear-gradient(135deg, #1a3a70, #0d2050)",
             border: "2px solid rgba(232,168,124,0.4)",
             display: "flex", alignItems: "center", justifyContent: "center",
-            fontSize: "22px", flexShrink: 0,
-            boxShadow: "0 0 16px rgba(232,168,124,0.15)",
-            position: "relative",
+            fontSize: "22px", flexShrink: 0, boxShadow: "0 0 16px rgba(232,168,124,0.15)", position: "relative",
           }}>
             👴
             <div style={{
-              position: "absolute", bottom: "1px", right: "1px",
-              width: "10px", height: "10px",
-              background: "#4caf50", borderRadius: "50%",
-              border: "2px solid #081432",
+              position: "absolute", bottom: "1px", right: "1px", width: "10px", height: "10px",
+              background: reservationSent ? "#ff6b35" : "#4caf50",
+              borderRadius: "50%", border: "2px solid #081432",
+              transition: "background 0.5s",
             }} />
           </div>
           <div style={{ flex: 1 }}>
             <div style={{ color: "#ffffff", fontSize: "15px", fontWeight: "600" }}>Paul Moustache</div>
             <div style={{ color: "rgba(255,255,255,0.4)", fontSize: "11px", fontStyle: "italic", marginTop: "2px" }}>
-              Propriétaire de Pausette · Mari de Louisette · Vendéen des Herbiers · Ex-U, expert en vin
+              {reservationSent
+                ? "Parti regarder le Tour. Louisette gère."
+                : "Propriétaire de Pausette · Mari de Louisette · Ami de Gérard (Super U)"}
             </div>
           </div>
           <div style={{
@@ -257,7 +354,7 @@ export default function ChatbotPaul() {
 
         {/* Messages */}
         <div style={{
-          height: "400px", overflowY: "auto", padding: "22px",
+          height: "420px", overflowY: "auto", padding: "22px",
           display: "flex", flexDirection: "column", gap: "16px",
           scrollbarWidth: "thin", scrollbarColor: "rgba(255,255,255,0.1) transparent",
         }}>
@@ -265,8 +362,7 @@ export default function ChatbotPaul() {
             <div key={i} style={{
               display: "flex",
               justifyContent: msg.role === "user" ? "flex-end" : "flex-start",
-              alignItems: "flex-end", gap: "10px",
-              animation: "fadeSlideIn 0.3s ease",
+              alignItems: "flex-end", gap: "10px", animation: "fadeSlideIn 0.3s ease",
             }}>
               {msg.role === "assistant" && (
                 <div style={{
@@ -283,13 +379,10 @@ export default function ChatbotPaul() {
                 fontSize: "14px", lineHeight: "1.75",
                 ...(msg.role === "user" ? {
                   background: "linear-gradient(135deg, #e07855, #c85f3a)",
-                  color: "rgba(255,255,255,0.95)",
-                  boxShadow: "0 4px 16px rgba(224,120,85,0.25)",
+                  color: "rgba(255,255,255,0.95)", boxShadow: "0 4px 16px rgba(224,120,85,0.25)",
                 } : {
-                  background: "rgba(255,255,255,0.06)",
-                  color: "rgba(255,255,255,0.88)",
-                  border: "1px solid rgba(255,255,255,0.09)",
-                  boxShadow: "0 4px 16px rgba(0,0,0,0.2)",
+                  background: "rgba(255,255,255,0.06)", color: "rgba(255,255,255,0.88)",
+                  border: "1px solid rgba(255,255,255,0.09)", boxShadow: "0 4px 16px rgba(0,0,0,0.2)",
                 }),
               }}>
                 {msg.content}
@@ -299,8 +392,7 @@ export default function ChatbotPaul() {
                   width: "28px", height: "28px", borderRadius: "50%",
                   background: "linear-gradient(135deg, #e07855, #c85f3a)",
                   display: "flex", alignItems: "center", justifyContent: "center",
-                  fontSize: "14px", flexShrink: 0,
-                  boxShadow: "0 2px 8px rgba(224,120,85,0.3)",
+                  fontSize: "14px", flexShrink: 0, boxShadow: "0 2px 8px rgba(224,120,85,0.3)",
                 }}>🏖️</div>
               )}
             </div>
@@ -322,8 +414,7 @@ export default function ChatbotPaul() {
                 {[0,1,2].map(j => (
                   <div key={j} style={{
                     width: "7px", height: "7px", borderRadius: "50%",
-                    background: "rgba(232,168,124,0.6)",
-                    animation: `bounce 1.2s ${j * 0.2}s infinite`,
+                    background: "rgba(232,168,124,0.6)", animation: `bounce 1.2s ${j * 0.2}s infinite`,
                   }} />
                 ))}
                 <span style={{ color: "rgba(255,255,255,0.3)", fontSize: "11px", fontStyle: "italic", marginLeft: "4px" }}>
@@ -337,17 +428,20 @@ export default function ChatbotPaul() {
 
         <div style={{ height: "1px", background: "linear-gradient(90deg, transparent, rgba(255,255,255,0.08), transparent)" }} />
 
-        {/* Saisie */}
+        {/* Zone saisie — désactivée après réservation */}
         <div style={{
           padding: "14px 18px", background: "rgba(255,255,255,0.02)",
           display: "flex", gap: "10px", alignItems: "flex-end",
+          opacity: reservationSent ? 0.4 : 1,
+          transition: "opacity 0.5s",
         }}>
           <textarea
             ref={textareaRef}
             value={input}
             onChange={e => { setInput(e.target.value); autoResize(e); }}
             onKeyDown={handleKey}
-            placeholder="Demandez une disponibilité... mais n'espérez pas trop."
+            disabled={reservationSent}
+            placeholder={reservationSent ? "Paul est parti regarder le Tour. Louisette gère." : "Demandez une disponibilité... mais n'espérez pas trop."}
             rows={1}
             style={{
               flex: 1, background: "rgba(255,255,255,0.05)",
@@ -356,30 +450,30 @@ export default function ChatbotPaul() {
               fontSize: "14px", resize: "none", outline: "none",
               fontFamily: "inherit", lineHeight: "1.5",
               transition: "border-color 0.2s, background 0.2s", overflow: "hidden",
+              cursor: reservationSent ? "not-allowed" : "text",
             }}
-            onFocus={e => { e.target.style.borderColor = "rgba(232,168,124,0.4)"; e.target.style.background = "rgba(255,255,255,0.08)"; }}
+            onFocus={e => { if (!reservationSent) { e.target.style.borderColor = "rgba(232,168,124,0.4)"; e.target.style.background = "rgba(255,255,255,0.08)"; } }}
             onBlur={e => { e.target.style.borderColor = "rgba(255,255,255,0.12)"; e.target.style.background = "rgba(255,255,255,0.05)"; }}
           />
           <button
             onClick={sendMessage}
-            disabled={loading || !input.trim()}
+            disabled={loading || !input.trim() || reservationSent}
             style={{
-              background: loading || !input.trim() ? "rgba(255,255,255,0.06)" : "linear-gradient(135deg, #e07855, #c85f3a)",
-              color: loading || !input.trim() ? "rgba(255,255,255,0.2)" : "white",
+              background: loading || !input.trim() || reservationSent ? "rgba(255,255,255,0.06)" : "linear-gradient(135deg, #e07855, #c85f3a)",
+              color: loading || !input.trim() || reservationSent ? "rgba(255,255,255,0.2)" : "white",
               border: "none", borderRadius: "12px", padding: "11px 18px",
-              cursor: loading || !input.trim() ? "not-allowed" : "pointer",
+              cursor: loading || !input.trim() || reservationSent ? "not-allowed" : "pointer",
               fontSize: "16px", transition: "all 0.2s", flexShrink: 0,
-              boxShadow: loading || !input.trim() ? "none" : "0 4px 16px rgba(224,120,85,0.35)",
+              boxShadow: loading || !input.trim() || reservationSent ? "none" : "0 4px 16px rgba(224,120,85,0.35)",
             }}
-            onMouseEnter={e => { if (!loading && input.trim()) e.currentTarget.style.transform = "translateY(-1px)"; }}
+            onMouseEnter={e => { if (!loading && input.trim() && !reservationSent) e.currentTarget.style.transform = "translateY(-1px)"; }}
             onMouseLeave={e => { e.currentTarget.style.transform = "translateY(0px)"; }}
           >➤</button>
         </div>
       </div>
 
-      {/* Footer */}
-      <div style={{ marginTop: "20px", zIndex: 1, display: "flex", gap: "24px", flexWrap: "wrap", justifyContent: "center" }}>
-        {["🌊 Accès direct à la plage", "👥 Jusqu'à 8 personnes", "🍷 Conseils vin offerts (non demandés)"].map((item, i) => (
+      <div style={{ marginTop: "20px", zIndex: 1, display: "flex", gap: "20px", flexWrap: "wrap", justifyContent: "center" }}>
+        {["🌊 Accès direct à la plage", "👥 Jusqu'à 8 personnes", "🍷 Conseils vin (non demandés)", "🛒 Super U Gérard à 5 min"].map((item, i) => (
           <span key={i} style={{ color: "rgba(255,255,255,0.3)", fontSize: "12px" }}>{item}</span>
         ))}
       </div>
