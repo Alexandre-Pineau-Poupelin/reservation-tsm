@@ -67,6 +67,13 @@ export default function CalendarSection() {
   const [events, setEvents] = useState([]);
   const [loading, setLoading] = useState(true);
   const [error, setError] = useState(null);
+  const [isMobile, setIsMobile] = useState(window.innerWidth < 640);
+
+  useEffect(() => {
+    const handleResize = () => setIsMobile(window.innerWidth < 640);
+    window.addEventListener("resize", handleResize);
+    return () => window.removeEventListener("resize", handleResize);
+  }, []);
 
   useEffect(() => {
     fetchEvents();
@@ -245,7 +252,7 @@ export default function CalendarSection() {
 
                 return (
                   <div key={i} style={{
-                    minHeight: "80px",
+                    minHeight: isMobile ? "48px" : "80px",
                     padding: "8px",
                     border: "1px solid rgba(0,0,0,0.04)",
                     background: bgColor,
@@ -271,8 +278,20 @@ export default function CalendarSection() {
                           {day.getDate()}
                         </div>
 
-                        {/* Badge réservé — bleu */}
-                        {reserved && (
+                        {/* Mobile : petit point coloré */}
+                        {isMobile && (reserved || pending) && (
+                          <div style={{
+                            position: "absolute", bottom: "5px", left: "50%",
+                            transform: "translateX(-50%)",
+                            width: "6px", height: "6px", borderRadius: "50%",
+                            background: reserved
+                              ? "linear-gradient(135deg, #1a3a6e, #2d5fa0)"
+                              : "linear-gradient(135deg, #c85f3a, #e07855)",
+                          }} />
+                        )}
+
+                        {/* Desktop : badge réservé — bleu */}
+                        {!isMobile && reserved && (
                           <div style={{
                             background: "linear-gradient(135deg, #1a3a6e, #2d5fa0)",
                             borderRadius: "6px",
@@ -294,8 +313,8 @@ export default function CalendarSection() {
                           </div>
                         )}
 
-                        {/* Badge en attente — orange */}
-                        {pending && (
+                        {/* Desktop : badge en attente — orange */}
+                        {!isMobile && pending && (
                           <div style={{
                             background: "linear-gradient(135deg, #c85f3a, #e07855)",
                             borderRadius: "6px",
